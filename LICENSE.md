@@ -1,4 +1,4 @@
-# 
+# Enhance Logic Pro for macOS with Logic Pro for macOS ultimate Extension: cloud-sync & sound-design, the #1 extension. Includes cloud-sync and sound-design for a smoother and more
 
 
 
